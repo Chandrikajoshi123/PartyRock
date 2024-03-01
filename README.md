@@ -88,3 +88,27 @@ AniGen Images 📸
 
 
 '[party Rock App] (https://partyrock.aws/u/Chan01/MKQhtjXjP/AniGen) '
+
+
+
+
+
+
+
+      
+ 🔗📼 Video
+
+'(https://youtu.be/dlxH1mdFEhU?si=c8d6_mC9_Toq-uXG)'
+
+
+
+
+
+
+
+
+
+
+
+
+
